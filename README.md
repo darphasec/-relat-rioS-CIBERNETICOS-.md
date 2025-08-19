@@ -23,10 +23,10 @@ O ataque explora a popularidade do **TikTok Shop**, com mais de **10.000 sites f
 - **Alvos**: Compradores, afiliados, criadores do TikTok
 
    DOMINIOS
-aa.6786587.top
-tiktok-shop.top
-cc.5668613.top
-http://47.129.43.26/
-https://down-downapp.top/
+-aa.6786587.top
+-tiktok-shop.top
+-cc.5668613.top
+-http://47.129.43.26/
+-https://down-downapp.top/
 
 
